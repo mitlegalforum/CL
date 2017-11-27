@@ -8,7 +8,7 @@
 
 * [City Charters](https://www.gmanet.com/Advice-Knowledge/City-Clerk-Handbook/City-Charters.asp)
 
-* [Samples of City Charters - Charter Review Committee (2008) - City of North Miami Beach, Florida](http://www.citynmb.com/index.asp?Type=B_BASIC&SEC=%7BD213D66F-06FA-46F9-857C-379527E0C579%7D&DE=%7BC797C370-51C9-415C-91C3-E31DE414530B%7D)
+* [Samples of City Charters - City of North Miami Beach, Florida](http://www.citynmb.com/index.asp?Type=B_BASIC&SEC=%7BD213D66F-06FA-46F9-857C-379527E0C579%7D&DE=%7BC797C370-51C9-415C-91C3-E31DE414530B%7D)
 
 * [Municipal Charters](http://www.nlc.org/municipal-charters)
 
