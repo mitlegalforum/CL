@@ -4,9 +4,9 @@
 
 * [Georgia Model Municipal Charter.pdf](https://landings.org/sites/default/files/resources/Incorporation/Georgia%20Model%20Municipal%20Charter.pdf)
 
-* [City Charters](https://www.gmanet.com/Advice-Knowledge/City-Clerk-Handbook/City-Charters.asp)
+* [Georgia Model Municipal Charter](https://www.gmanet.com/Advice-Knowledge/GMA-Publications/Georgia-Model-Municipal-Charter.aspx)
 
-* [Georgia Model Municipal Charter)[https://www.gmanet.com/Advice-Knowledge/GMA-Publications/Georgia-Model-Municipal-Charter.aspx)
+* [City Charters](https://www.gmanet.com/Advice-Knowledge/City-Clerk-Handbook/City-Charters.asp)
 
 * [Samples of City Charters - Charter Review Committee (2008) - City of North Miami Beach, Florida](http://www.citynmb.com/index.asp?Type=B_BASIC&SEC=%7BD213D66F-06FA-46F9-857C-379527E0C579%7D&DE=%7BC797C370-51C9-415C-91C3-E31DE414530B%7D)
 
