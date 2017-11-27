@@ -14,3 +14,7 @@
 * [ModelCharterTB.PDF](http://nocofoshojrvbc.tripod.com/sitebuildercontent/sitebuilderfiles/modelchartertbbridgeton.pdf)
 
 * [General Law City](https://www.cacities.org/Resources-Documents/Resources-Section/Charter-Cities/Chart_General_Law_v-_Charter_Cities-07-26-11)
+
+---------------
+
+**Back to [MITLegalForum/CL](https://mitlegalforum.github.io/CL)**
